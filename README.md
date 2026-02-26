@@ -158,7 +158,7 @@ I'm always open to collaborating on AI projects, SaaS ideas, or discussing syste
 - **GitHub:** [https://github.com/abdulanasbuilds](https://github.com/abdulanasbuilds)
 - **Instagram:** [https://www.instagram.com/abdulanasbuilds/](https://www.instagram.com/abdulanasbuilds/)
 - **Portfolio:** [Your Portfolio Link](#)
-- **Email:** abdulanassofficial@gmail.com(#)
+- **Email:** abdulanassofficial@gmail.com
 
 ---
 
